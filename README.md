@@ -3,7 +3,7 @@
 ![Image description](https://dev-to-uploads.s3.us-east-2.amazonaws.com/uploads/articles/cab2ct6ksg9ws1ad4pxm.jpg)
             <br>&nbsp;&nbsp;<a href="https://globaltechdotcom.wordpress.com/contact/">order here</a><br>
 ![Image description](https://dev-to-uploads.s3.us-east-2.amazonaws.com/uploads/articles/9y44v4uwn0qm203aqy3h.jpg)
-            <br><&nbsp;&nbsp;<a href="https://globaltechdotcom.wordpress.com/contact/">order here</a><br>
+            <br>&nbsp;&nbsp;<a href="https://globaltechdotcom.wordpress.com/contact/">order here</a><br>
 ![Image description](https://dev-to-uploads.s3.us-east-2.amazonaws.com/uploads/articles/gcna7nzy5keqf0ckflt3.jpg)
             <br>&nbsp;&nbsp;<a href="https://globaltechdotcom.wordpress.com/contact/">order here</a><br>
 ![Image description](https://dev-to-uploads.s3.us-east-2.amazonaws.com/uploads/articles/w1ul0pppo8uoswxxticl.jpg)
