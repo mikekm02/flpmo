@@ -35,4 +35,4 @@ Contact:
 08185051292
 mikeoparaugo@yahoo.com<br>
 View us on Map<br>
-2026 All Rights Reserved. M-School Educational Schools
+2026 All Rights Reserved. flpmo
